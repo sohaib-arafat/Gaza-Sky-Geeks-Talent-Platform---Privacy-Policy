@@ -1,1 +1,0 @@
-# Gaza-Sky-Geeks-Talent-Platform---Privacy-Policy
