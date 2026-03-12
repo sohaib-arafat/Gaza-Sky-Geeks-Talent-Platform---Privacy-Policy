@@ -116,7 +116,7 @@ Your continued use of the Platform after the effective date of a revised policy 
 
 If you have questions about this Privacy Policy, want to exercise your data rights, or need to report a concern, contact:
 
-**Employability & Tech Unit**
+**Employability Unit**
 Gaza Sky Geeks (a program of Mercy Corps)
 Email: work@gazaskygeeks.com
 
